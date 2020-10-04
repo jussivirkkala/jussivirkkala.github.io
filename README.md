@@ -1,5 +1,5 @@
-# jussivirkkala.github.io
+# Jussi Virkkala
 
-[twitter](https://twitter.com/jussivirkkala)
+[@jussivirkkala](https://twitter.com/jussivirkkala)
 
 [Google scholar](https://scholar.google.fi/citations?user=sDpNYGsAAAAJ)
